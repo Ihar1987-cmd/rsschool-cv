@@ -1,1 +1,1 @@
-https://Ihar1987-cmd.github.io/rsschool-cv/cv
+https://Ihar1987-cmd.github.io/rsschool-cv/
